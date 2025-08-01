@@ -1,2 +1,2 @@
-# novan-khakiki-vadillah-pratama
+# NOVAN-DAN-RIZAL
 belajar
